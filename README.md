@@ -3,7 +3,6 @@
 Shoot for the moon, even if you miss you'll land amongst the stars
 
 
-![slothinboxspace](https://user-images.githubusercontent.com/87614188/190187972-6bee5ea6-9d6b-4efb-9b8b-0420c291c032.jpg)
 
 
-
+![DefinitiveKaleidoscopicLeafwing-max-1mb](https://user-images.githubusercontent.com/87614188/190196919-109eed36-2499-4143-aa00-fb34ff75e303.gif)
